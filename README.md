@@ -1,1 +1,2 @@
 Um em cada quatro hectares do Brasil pegou fogo nos últimos 40 anos. É o que aponta levantamento realizado pelo MapBiomas Fogo. Segundo o estudo, entre 1985 e 2023, foram 199,1 milhões de hectares queimados pelo menos uma vez no Brasil.
+Segundo o documento, os três municípios que mais sofreram com queimadas nesse período foram Corumbá (MS), no Pantanal, seguido por São Félix do Xingu (PA), na Amazônia, e Formosa do Rio Preto (BA), no Cerrado.
